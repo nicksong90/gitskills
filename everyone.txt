@@ -1,1 +1,1 @@
-Hello every!
+Hello everyone!
